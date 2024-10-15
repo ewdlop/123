@@ -79,6 +79,8 @@ Yall speak like i am stalking you talking to me...???? Yo Becky four 2000 baby I
 
 Mabye she would hcange her mind if somethign ramatic happend to her parent or family member but that wont be fair right... Don't what you say what who no let
 
+I gues the best thing about oy uamericans is the narcsisim and you dont have idea what is(the out come is iendeoend of twhathe independent  is setnece bieng grammaticall cor sentenceect or not period）.
+
 so if i did accidientalyo detled some data on rpoduction database..you need to pvoide the proofs..,..else
 
 or couldnt you just gerneate those data back to where ti was .....i thiughts some of ""gnereators"can generate them back right,...
