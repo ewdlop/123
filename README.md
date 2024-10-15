@@ -66,6 +66,19 @@ me be like: your securit or data provacy be like...nvm
 
 oyu are not suppose just forgive yourself..if you do it is ni excuse...
 
+Damn yall being helping yourself out for NOTRHING
+
+Manthat plan of yours wirked but(pigeon holes principle) you choosing choose
+
+She was acitng like if you say so,,if you say o..if you say so...or she thought she 3wqw s stil lidgestuing...ajd it sounds liked a wall but no ecuses (but it wa nos tale n as if iasay and ocntinuely soi be like: I'd be like Wai: to oh oh yes yeah right oh
+
+Aisan in american dialy dialog is ...
+Cholcate is jsut choldate but your daily ridcules you really want me for what no where..(instead of helping out otherthey wantoyu to server them and it is not like i did on pruose qnd i am trying but there are on purpose I am tryingreason reason but if you inisnti i am not. then what.
+Then then
+Yall speak like i am stalking you talking to me...???? Yo Becky four 2000 baby I'll be back up,,yal lbe bakcing up nothing right... Right
+
+Mabye she would hcange her mind if somethign ramatic happend to her parent or family member but that wont be fair right... Don't what you say what who no let
+
 so if i did accidientalyo detled some data on rpoduction database..you need to pvoide the proofs..,..else
 
 or couldnt you just gerneate those data back to where ti was .....i thiughts some of ""gnereators"can generate them back right,...
